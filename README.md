@@ -5,17 +5,11 @@
 wipp
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/ywar4c.png" />
-</p>
-<p align="center">
-<img src="https://files.catbox.moe/6kbzec.png" />
-</p>
-<p align="center">
-<img src="https://files.catbox.moe/rwgqyi.png" />
+<img src="https://i.postimg.cc/8PMTTT7q/757-sin-titulo-20260704184321.png" />
 </p>
 <p align="center">
 wipp
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/le640j.png" />
+<img src="https://i.postimg.cc/7Y0qqq5X/hitthubb.png" />
 </p>
