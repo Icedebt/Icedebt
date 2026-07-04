@@ -1,16 +1,21 @@
-## Hi there 👋
-
-<!--
-**Icedebt/Icedebt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://files.catbox.moe/ap6j52.png" />
+</p>
+<p align="center">
+wipp
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/ywar4c.png" />
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/6kbzec.png" />
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/rwgqyi.png" />
+</p>
+<p align="center">
+wipp
+</p>
+<p align="center">
+<img src="https://files.catbox.moe/le640j.png" />
+</p>
