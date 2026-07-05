@@ -9,20 +9,20 @@
 <img src="https://i.postimg.cc/Vv7Z8rjb/hitthubb-20260704192927.png" />
    𓈒    𓏼<img src="https://i.postimg.cc/FH2c7ym9/hitthubb-20260704233734.png" width="20" height="20">   ̣̣  ۟   <b>So<ins>uth</ins></b> <ins>Amer</ins>ica<ins>n</ins> <img src="https://i.postimg.cc/Bn8HSYWt/hitthubb-20260704234459.png" width="20" height="20">　　<ins>ᴜᴛᴄ+3</ins>   ﹒<ins>♡</ins>
 
-   𓏫 ུ　<ins>⁴ω⁵</ins>　 ۪‿ྀ<img src="https://i.postimg.cc/sxhCDCJZ/50b4d5f6cc387ac3b0010c406f627414c209257bb028798ff8479dce374c1934.webp" width="20" height="20"> ֯ I<ins>ST</ins>P-t
-ꞌꞋ    ིྀ 𓏼 ch<ins>aot</ins>ic n<ins>eu</ins> 
+   𓏫 ུ　<b><ins>⁴ω⁵</ins></b>　 ۪‿ྀ<img src="https://i.postimg.cc/sxhCDCJZ/50b4d5f6cc387ac3b0010c406f627414c209257bb028798ff8479dce374c1934.webp" width="20" height="20"> ֯ I<b>ST</b>P-t
+ꞌꞋ    ིྀ 𓏼 ch<ins>aot</ins>ic n<b>eu</b> 
 </div>
 <p align="center">
 <img src="https://i.postimg.cc/HkGsMBcp/757-sin-titulo-20260704184321.png" />
 </p>
 <div align="center">
-text
-
-text
+<b><ins>FANDOMS</ins></b> : <b>crk</b>　<ins>dandys world</ins>　<b>hsr</b>　<ins>bad things</ins>　
+ <b>block tales</b>　<ins>anhg</ins>　<b>bsd</b>　<ins>aph</ins>　<b>forsaken</b>
+ 　
 <img src="https://i.postimg.cc/WpC2RX7q/hitthubb-20260704192927.png" />
-text
+<b><ins>LINKS :</ins></b>
 
-text
+ttk　　dc　　prns.page
 </div>
 </p>
 <p align="center">
