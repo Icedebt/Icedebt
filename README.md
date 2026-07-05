@@ -16,19 +16,19 @@
 <img src="https://i.postimg.cc/HkGsMBcp/757-sin-titulo-20260704184321.png" />
 </p>
 <div align="center">
-<b><ins>FANDOMS</ins></b> : <ins>dandys world</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>hsr</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>bad things</ins>
-<img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>block tales</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>anhg</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>bsd</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>aph</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>forsaken</b>
+<b><ins>FANDOMS</ins></b> : <ins>dandys world</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>bad things</ins>
+<img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>block tales</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>anhg</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>bsd</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>forsaken</b>
 
  　
 <img src="https://i.postimg.cc/WpC2RX7q/hitthubb-20260704192927.png" />
 <b><ins>LINKS :</ins></b>
 
-<a href="https://tu-link.com" target="_blank">
-  <img src="https://i.postimg.cc/dtWNSVck/hitthubb-20260705004424.png" height="70">
+<a href="https://www.tiktok.com/@akkuchuu/" target="_blank">
+  <img src="https://i.postimg.cc/dtWNSVck/hitthubb-20260705004424.png" height="50">
 </a>　　<a href="https://tu-link.com" target="_blank">
-  <img src="https://i.postimg.cc/Cxzrypwq/hitthubb-20260705004417.png" height="70">
-</a>　　<a href="https://tu-link.com" target="_blank">
-  <img src="https://i.postimg.cc/y8kpqC7R/hitthubb-20260705004430.png" height="70">
+  <img src="https://i.postimg.cc/Cxzrypwq/hitthubb-20260705004417.png" height="50">
+</a>　　<a href="https://en.pronouns.page/@Icedebt" target="_blank">
+  <img src="https://i.postimg.cc/y8kpqC7R/hitthubb-20260705004430.png" height="50">
 </a>
 </div>
 </p>
