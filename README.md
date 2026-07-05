@@ -7,7 +7,7 @@
  h<ins>e</ins> / <ins>hi</ins>m 　<img src="https://i.postimg.cc/YqJ2KbMy/a8mmz9.png" width="16" height="16">　<img src="https://i.postimg.cc/YCbXLyjB/Transmasculine.png" width="16" height="16">+<img src="https://i.postimg.cc/8PL9cHhk/Aroace-(1).png" width="16" height="16">+<img src="https://i.postimg.cc/d0VxWcgw/01KG7ZCKWPA7AWV4VNYXA83BZS-flag-(1).png" width="16" height="16"> 　<ins>㈾ׄ</ins>　 𝄃𝄀 <ins>5te</ins>en ʸʳˢ
  
 <img src="https://i.postimg.cc/Vv7Z8rjb/hitthubb-20260704192927.png" />
-   𓈒    𓏼<img src="https://i.postimg.cc/FH2c7ym9/hitthubb-20260704233734.png" width="20" height="20">   ̣̣  ۟   <b>So<ins>uth</ins></b> <ins>Amer</ins>ica<ins>n</ins> <img src="https://i.postimg.cc/Bn8HSYWt/hitthubb-20260704234459.png" width="20" height="20">　　<ins>ᴜᴛᴄ+3</ins>   ﹒<ins>♡</ins>
+   𓈒    𓏼<img src="https://i.postimg.cc/FH2c7ym9/hitthubb-20260704233734.png" width="20" height="20">   ̣̣  ۟   <b>So<ins>uth</ins></b> <ins>Amer</ins>ica<ins>n</ins> <img src="https://i.postimg.cc/Bn8HSYWt/hitthubb-20260704234459.png" width="20" height="20">　　<ins>ɢᴍᴛ + 3</ins>   ﹒<ins>♡</ins>
 
    𓏫 ུ　<b><ins>⁴ω⁵</ins></b>　 ۪‿ྀ<img src="https://i.postimg.cc/sxhCDCJZ/50b4d5f6cc387ac3b0010c406f627414c209257bb028798ff8479dce374c1934.webp" width="20" height="20"> ֯ I<b>ST</b>P-t
 ꞌꞋ    ིྀ 𓏼 ch<ins>aot</ins>ic n<b>eu</b> 
