@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/ap6j52.png" />
+<img src="https://i.postimg.cc/Vvw4YKbC/757-sin-titulo-20260704184321.png" />
 </p>
 <div align="center">
 <img src="https://i.postimg.cc/dVzdL2vs/hitthubb-20260704233851.png" width="20" height="20">　( 繣ׄ )　 ՞   <ins>ℐ</ins>v<ins>a</ins>n　𓈒　ᵒᵘ a<ins>ny</ins> n<ins>ic</ins>k  ๋ <img src="https://i.postimg.cc/6p7nWjs4/hitthubb-20260704233845.png" width="20" height="20">𓏲
