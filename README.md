@@ -24,7 +24,7 @@
 <b><ins>LINKS :</ins></b>
 
 <a href="https://www.tiktok.com/@akkuchuu/" target="_blank">
-<img src="https://i.postimg.cc/dtWNSVck/hitthubb-20260705004424.png" height="50">
+<img src="https://i.postimg.cc/Cx6W1WK6/hitthubb-20260705004424.png" height="50">
 </a>　　<a href="https://discord.com/users/1163545835632594965" target="_blank">
 <img src="https://i.postimg.cc/Cxzrypwq/hitthubb-20260705004417.png" height="50">
 </a>　　<a href="https://en.pronouns.page/@Icedebt" target="_blank">
