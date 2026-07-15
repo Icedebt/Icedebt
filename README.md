@@ -16,7 +16,7 @@
 <img src="https://i.postimg.cc/HkGsMBcp/757-sin-titulo-20260704184321.png" />
 </p>
 <div align="center">
-<b><ins>FANDOMS</ins></b> : <ins>dandys world</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>bad things</b>
+<b><ins>FANDOMS</ins></b> : <ins>animal hospital</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>bad things</b>
 
  <ins>block tales</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>anhg</b><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><ins>bsd</ins><img src="https://i.postimg.cc/Kcq6kNpZ/hitthubb-20260705002201.png" width="20" height="20"><b>forsaken</b>
 
