@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://i.postimg.cc/FsSgz1P7/798-sin-titulo-20260806212325.png" />
- ______________________________________________
+ <img SRC="https://i.postimg.cc/s1FSY7q3/805-sin-titulo-20260811212617.png"/>
  <div align="center">
   
  <b>Ivan</b> , Boomi or any nick  
