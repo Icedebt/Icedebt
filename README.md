@@ -7,7 +7,7 @@
   he . him　5teen (6/30)  
   aroace & aegosexual
 
- [rentry](https://rentry.co/Frozened)　.　[ext](https://rentry.co/06-30)　.　[prns.page](https://en.pronouns.page/@Icedebt)
+ [Rentry](https://fluffle.cc/dаndy)　.　[Ext](https://fluffle.cc/vее)　.　[prns.page](https://en.pronouns.page/@Icedebt)
 
 </div>
 
