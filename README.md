@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/FsSgz1P7/798-sin-titulo-20260806212325.png" />
+<img src="https://files.catbox.moe/irfy29.jpg" />
  <img SRC="https://i.postimg.cc/s1FSY7q3/805-sin-titulo-20260811212617.png"/>
  <div align="center">
   
@@ -7,7 +7,7 @@
   he . him　5teen (6/30)  
   aroace & aegosexual
 
- [Rentry](https://fluffle.cc/dаndy)　.　[Ext](https://fluffle.cc/vее)　.　[prns.page](https://en.pronouns.page/@Icedebt)
+ [Rentry](https://fluffle.cc/dаndy)　.　[Ext](https://fluffle.cc/vее)　.　[Pronouns cc](https://pronouns.cc/@frozendebt)
 
 </div>
 
